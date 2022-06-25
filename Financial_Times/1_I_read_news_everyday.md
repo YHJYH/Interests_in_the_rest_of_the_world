@@ -1,4 +1,6 @@
 ## 2022
+6.25 [Boris Johnson insists he will not undergo 'psychological transformation'](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/Boris%20Johnson%20insists%20he%20will%20not%20undergo%20%E2%80%98psychological%20transformation%E2%80%99%20_%20Financial%20Times.pdf)<br>
+
 6.24 [UK consumer confidence falls to lowest level since records began](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/UK%20consumer%20confidence%20falls%20to%20lowest%20level%20since%20records%20began%20_%20Financial%20Times.pdf)<br>
 [Deloitte introduces flexible public holidays for UK staff](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/Deloitte%20introduces%20flexible%20public%20holidays%20for%20UK%20staff%20_%20Financial%20Times.pdf)<br>
 [Russian gas crisis will test EU solidarity, warns German utility RWE](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/Russian%20gas%20crisis%20will%20test%20EU%20solidarity%2C%20warns%20German%20utility%20RWE%20_%20Financial%20Times.pdf)<br>
