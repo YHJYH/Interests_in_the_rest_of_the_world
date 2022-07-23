@@ -1,4 +1,6 @@
 ## 2022
+7.22 [Tata threatens to close Port Talbot steelworks without £1.5bn of aid]()
+
 6.25 [Boris Johnson insists he will not undergo 'psychological transformation'](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/Boris%20Johnson%20insists%20he%20will%20not%20undergo%20%E2%80%98psychological%20transformation%E2%80%99%20_%20Financial%20Times.pdf)<br>
 
 6.24 [UK consumer confidence falls to lowest level since records began](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/UK%20consumer%20confidence%20falls%20to%20lowest%20level%20since%20records%20began%20_%20Financial%20Times.pdf)<br>
