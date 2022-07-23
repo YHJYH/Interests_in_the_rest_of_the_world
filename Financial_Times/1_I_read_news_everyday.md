@@ -1,5 +1,5 @@
 ## 2022
-7.22 [Tata threatens to close Port Talbot steelworks without £1.5bn of aid](Financial_Times/Tata threatens to close Port Talbot steelworks without £1.5bn of aid _ Financial Times.pdf)
+7.22 [Tata threatens to close Port Talbot steelworks without £1.5bn of aid](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/Tata%20threatens%20to%20close%20Port%20Talbot%20steelworks%20without%20%C2%A31.5bn%20of%20aid%20_%20Financial%20Times.pdf)
 
 6.25 [Boris Johnson insists he will not undergo 'psychological transformation'](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/Boris%20Johnson%20insists%20he%20will%20not%20undergo%20%E2%80%98psychological%20transformation%E2%80%99%20_%20Financial%20Times.pdf)<br>
 
