@@ -1,4 +1,6 @@
 ## 2022
+7.26 [IMF slashes global growth forecast and raises inflation projections](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/IMF%20slashes%20global%20growth%20forecast%20and%20raises%20inflation%20projections%20_%20Financial%20Times.pdf)
+
 7.24 [China’s Belt and Road spending in Russia drops to zero](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/China%E2%80%99s%20Belt%20and%20Road%20spending%20in%20Russia%20drops%20to%20zero%20_%20Financial%20Times.pdf)
 
 7.23 [Sales of £5mn-plus London homes hit record level](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/Sales%20of%20%C2%A35mn-plus%20London%20homes%20hit%20record%20level%20_%20Financial%20Times.pdf)
