@@ -1,4 +1,6 @@
 ## 2022
+7.27 [European gas price rise accelerates as Russia cuts flows](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/European%20gas%20price%20rise%20accelerates%20as%20Russia%20cuts%20flows%20_%20Financial%20Times.pdf)
+
 7.26 [IMF slashes global growth forecast and raises inflation projections](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/IMF%20slashes%20global%20growth%20forecast%20and%20raises%20inflation%20projections%20_%20Financial%20Times.pdf)
 
 7.24 [China’s Belt and Road spending in Russia drops to zero](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/China%E2%80%99s%20Belt%20and%20Road%20spending%20in%20Russia%20drops%20to%20zero%20_%20Financial%20Times.pdf)
