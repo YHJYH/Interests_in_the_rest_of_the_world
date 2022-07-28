@@ -1,4 +1,6 @@
 ## 2022
+7.28 [West London faces new homes ban as electricity grid hits capacity](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/West%20London%20faces%20new%20homes%20ban%20as%20electricity%20grid%20hits%20capacity%20_%20Financial%20Times.pdf)
+
 7.27 [European gas price rise accelerates as Russia cuts flows](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/European%20gas%20price%20rise%20accelerates%20as%20Russia%20cuts%20flows%20_%20Financial%20Times.pdf)
 
 7.26 [IMF slashes global growth forecast and raises inflation projections](https://github.com/YHJYH/Interests_in_the_rest_of_the_world/blob/main/Financial_Times/IMF%20slashes%20global%20growth%20forecast%20and%20raises%20inflation%20projections%20_%20Financial%20Times.pdf)
